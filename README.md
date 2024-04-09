@@ -1,5 +1,6 @@
 
-![Uploading 1667004221_1-celes-club-p-chernii-kosmos-oboi-instagram-1 копия.png…]()
+![1667004221_1-celes-club-p-chernii-kosmos-oboi-instagram-1 копия](https://github.com/turbor1/Dexscreener-Trending/assets/155108454/795ddc18-a805-4a01-9bbc-555dffec763b)
+
 
 # 🟢Dextools Trending: 
 - conditions for a trend:
